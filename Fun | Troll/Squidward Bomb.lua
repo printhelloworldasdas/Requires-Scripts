@@ -1,0 +1,1 @@
+https://requires-spaoy.com/
